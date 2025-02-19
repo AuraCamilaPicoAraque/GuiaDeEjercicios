@@ -28,3 +28,19 @@ Salida de la postura: Flexiona las rodillas y baja lentamente a la posición ini
 
 
 
+Consejos y precauciones:
+
+No fuerces los talones al suelo si sientes mucha tensión en los isquiotibiales.
+Mantén el cuello relajado y la mirada hacia las rodillas o el ombligo.
+Si sientes incomodidad en las muñecas, distribuye el peso entre las manos y los pies.
+Es ideal para realizar al inicio o al final de una rutina de yoga o estiramiento.
+Si tienes problemas en las muñecas o en la zona lumbar, consulta a un especialista antes de practicarla.
+
+El Perro Boca Abajo es una postura fundamental en el yoga, perfecta para mejorar la flexibilidad y la estabilidad. ¡Practícala y siente sus beneficios! 🧘‍♀️✨
+
+
+
+
+
+
+

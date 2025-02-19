@@ -30,3 +30,13 @@ Repetición: Realiza de 10 a 15 repeticiones en 3 o 4 series, según tu nivel.
 
 
 
+Consejos y precauciones:
+
+
+Mantén el pecho erguido y evita arquear la espalda.
+No dejes que las rodillas sobrepasen la punta de los pies.
+Controla la bajada y subida para evitar lesiones.
+Si eres principiante, empieza sin peso y aumenta progresivamente la intensidad.
+Si sientes dolor en las rodillas, reduce la profundidad o consulta a un especialista.
+Las sentadillas son un ejercicio fundamental para mejorar la fuerza y la estabilidad en el tren inferior. ¡Inclúyelas en tu rutina para notar la diferencia! 💪🔥
+

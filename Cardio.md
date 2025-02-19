@@ -20,3 +20,12 @@ Posición inicial: Ponte de pie con los pies juntos y los brazos relajados a los
 Movimiento: Salta separando las piernas mientras levantas los brazos por encima de la cabeza.
 Regreso: Salta nuevamente para volver a la posición inicial.
 Repetición: Realiza el movimiento de forma continua durante 30 a 60 segundos o según tu nivel de resistencia.
+
+
+Consejos y precauciones:
+
+Mantén un ritmo constante y controla la respiración.
+Asegúrate de aterrizar suavemente con las puntas de los pies para evitar impacto en las rodillas.
+Si tienes problemas en las articulaciones, reduce la intensidad o prueba una variante de bajo impacto.
+Realiza un calentamiento previo para evitar lesiones.
+Si sientes dolor o mareo, detente inmediatamente y descansa.

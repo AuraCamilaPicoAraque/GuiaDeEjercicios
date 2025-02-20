@@ -12,7 +12,7 @@ Bienvenido a nuestra guía de ejercicios físicos, donde compartimos descripcion
 - 
 - [Ejercicio de Entrenamiento Funcional]([entrenamientofuncional](https://github.com/AuraCamilaPicoAraque/GuiaDeEjercicios/blob/master/ejercicios/entrenamientofuncional.md "entrenamientofuncional.md"): Mejora la fuerza en movimientos cotidianos.
 - 
-- [Ejercicio de Yoga]([yoga](https://github.com/AuraCamilaPicoAraque/GuiaDeEjercicios/blob/master/ejercicios/yoga.md "yoga.md")): Fomenta la relajación y la flexibilidad.
+- [yoga](https://github.com/AuraCamilaPicoAraque/GuiaDeEjercicios/blob/master/ejercicios/yoga.md "yoga.md"): Fomenta la relajación y la flexibilidad.
 - 
 - [Ejercicio de Pilates]([pilates](https://github.com/AuraCamilaPicoAraque/GuiaDeEjercicios/blob/master/ejercicios/pilates.md "pilates.md")): Fortalece el núcleo y mejora la postura.
 - 
